@@ -1,7 +1,7 @@
 
 ## Welcome to Dummycando.com
 
-### Download 
-1. [Pumpkin Outline](https://dummycando.com/pumpkin.pdf)
+### Downloads
+1. [Halloween Pumpkin Outline](https://dummycando.com/pumpkin.pdf)
 
-### Now website is underconstruction.
+### Now website is under construction.
