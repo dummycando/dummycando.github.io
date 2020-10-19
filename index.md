@@ -1,4 +1,4 @@
-## [Download Pumpkin Outline](https://dummycando.com/pumpkin.pdf)
+## [1. Download Pumpkin Outline](https://dummycando.com/pumpkin.pdf)
 
 ## Welcome to Dummycando.com
 
