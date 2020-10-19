@@ -1,5 +1,5 @@
 
-## Welcome to Dummycando.com
+## Welcome to DummyCanDo.com
 
 ### Downloads
 1. [Halloween Pumpkin Outline](https://dummycando.com/pumpkin.pdf)
