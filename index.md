@@ -17,6 +17,7 @@
 1. [Marshmallow On Fire Outline (pdf)](http://dummycando.com/marshmallowonfire.pdf)
 1. [S'more Outline (pdf)](https://dummycando.com/smore.pdf)
 1. [Kimbap Outline (pdf)](https://dummycando.com/kimbap.pdf)
+1. [Odeng Outline (pdf)](https://dummycando.com/odeng.pdf)
 1. [Hot Chocolate Outline (pdf)](https://dummycando.com/hotchocolate.pdf)
 1. [Frappuccino Outline (pdf)](https://dummycando.com/frappuccino.pdf)
 1. [Iced Coffee Outline (pdf)](https://dummycando.com/icedcoffee.pdf)
