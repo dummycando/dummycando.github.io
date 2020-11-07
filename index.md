@@ -14,7 +14,7 @@
 1. [Fall leaves Outline (pdf)](https://dummycando.com/fallleaves.pdf)
 1. [Sunflower Outline (pdf)](https://dummycando.com/sunflower.pdf)
 1. [Marshmellow Outline (pdf)](https://dummycando.com/marshmallow.pdf)
-1. [Marshmallow On Fire (pdf)](http://dummycando.com/marshmallowonfire.pdf)
+1. [Marshmallow On Fire Outline (pdf)](http://dummycando.com/marshmallowonfire.pdf)
 1. [S'more Outline (pdf)](https://dummycando.com/smore.pdf)
 1. [Kimbap Outline (pdf)](https://dummycando.com/kimbap.pdf)
 1. [Hot Chocolate Outline (pdf)](https://dummycando.com/hotchocolate.pdf)
